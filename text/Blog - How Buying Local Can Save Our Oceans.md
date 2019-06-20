@@ -33,8 +33,8 @@ http://www.plasticoceanproject.org/what-can-you-do.html.
 
 **References:**
 
-ÒHow Long Does It Take for a Plastic Bag to Break down?Ó Toronto Environmental Alliance, www.torontoenvironment.org/how_long_does_it_take_for_a_plastic_bag_to_break_down. 
+"How Long Does It Take for a Plastic Bag to Break down?" Toronto Environmental Alliance, www.torontoenvironment.org/how_long_does_it_take_for_a_plastic_bag_to_break_down. 
 
-ÒThe Plastic Ocean Project, Inc.Ó Plastic Ocean Project, www.plasticoceanproject.org/. 
+"The Plastic Ocean Project, Inc." Plastic Ocean Project, www.plasticoceanproject.org/. 
 
 
