@@ -29,4 +29,4 @@ Suggested Twitter hashtags: #Wilmington #farmers market #sustainability
 
 - seasonal vegetable canning demonstration
 
-NOTE: these are sample options; I recognize The Veggie Wagon might wish to provide different events.![enter image description here](https://picasaweb.google.com/100243924864366283092/6704742891761199361#6704742899189512210)
+NOTE: these are sample options; I recognize The Veggie Wagon might wish to provide different events.
