@@ -9,8 +9,8 @@ Plastic pollution is widespread in our oceans, and as Wilmingtonians, The Veggie
 ![enter image description
 here](https://lh3.googleusercontent.com/KVstBBseAWC8B9CJBL_pMCBf4J5jJZ6EyxDAVrt1TwT3wi9u2Mp-V42S6X4Yrl1gurq6Gh-nuZA)
 
-And if youÕd like more information on how buying local can reduce waste, see our recent blog post about farmers' markets and plastic pollution:
-(ÒHow Buying Local Can Save Our OceansÓ Blog Link Here)
+And if you'd like more information on how buying local can reduce waste, see our recent blog post about farmers' markets and plastic pollution:
+("How Buying Local Can Save Our Oceans" Blog Link Here)
 
 
 **Facebook/Twitter Event Poll**
