@@ -19,6 +19,7 @@
 These studies show that somewhere along the line children have lost touch with the reality of where their food on their plate comes from. My sister, like many young children today, grew up in an urbanized neighborhood with adults that have little or no connections to farming practices. This is a concern because the loss of connection can hinder health, well-being, and skills in personal and social realms.[^^^note] This connectioin grounds children, it helps them realize their interdependence with other humans and nature.
 
 ### Are adults any better? 
+
 ![women grocery shoppoing][women][^^^^^note]
 We adults may understand that foods we purchase do not grow at the grocery store but how often do we think about where it was grown? Do we consider the farmer and what it took to ensure the growth of the plants? What about how the climate is impacting the growth of farmers produce or how farms may be contributing to climate change?[^^^^^^note] Many adults seem to be losing connection, forgetting the background that comes with every bit of produce and product we buy. As we forget to remember, so do our children and the generation after them. Less and less farmers are being remembered and less are being supported. To forget these farmers are we now forgetting to pay attention to our own health and wellness?
 
