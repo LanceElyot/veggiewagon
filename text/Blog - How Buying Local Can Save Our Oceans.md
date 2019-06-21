@@ -26,7 +26,7 @@ Too, while farmers' markets are often noted for decreasing the fossil fuels asso
 
 I believe the plastic problem can be solved with us. Though legislation has yet to truly address this issue, citizens can help by supporting local organizations like The Veggie Wagon.
 
-Wilmington is beloved by all of its citizens for its pristine beachesÑlet's love it back by living sustainably.
+Wilmington is beloved by all of its citizens for its pristine beaches—let's love it back by living sustainably.
 
 _For information on other solutions to the plastic problem, visit Plastic Ocean ProjectÕs website:_
 http://www.plasticoceanproject.org/what-can-you-do.html.
