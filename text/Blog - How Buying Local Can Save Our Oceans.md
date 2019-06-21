@@ -28,7 +28,7 @@ I believe the plastic problem can be solved with us. Though legislation has yet 
 
 Wilmington is beloved by all of its citizens for its pristine beaches—let's love it back by living sustainably.
 
-_For information on other solutions to the plastic problem, visit Plastic Ocean ProjectÕs website:_
+_For information on other solutions to the plastic problem, visit Plastic Ocean Project's website:_
 http://www.plasticoceanproject.org/what-can-you-do.html.
 
 **References:**
