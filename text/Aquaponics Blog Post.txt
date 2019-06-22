@@ -5,10 +5,14 @@
 
 I may not be a farmer with acres of land, but that doesn't have to stop me from growing my own food.
 
+![Mallory and plants](https://github.com/LanceElyot/veggiewagon/blob/master/Images/AquaponicsBlogPhoto1.jpeg?raw=true)
+
 I rubbed a fuzzy green leaf between my fingers, my mind racing with the anticipation of juicy red tomatoes. Walking down the line, I tapped each carefully labeled plant in turn- tomatoes, peas, swiss chard. For the past three months, I had been a mother, a keeper to these plants; from seed to sprout to thriving plant I had cultivated them. However, these pea plants had never felt the soil surround their roots and the tomatoes had never been rustled by the breeze. These plants were grown in an aquaculture lab entirely without soil.
 
 #### What is Hydroponics?
 Hydroponics is the science of growing plants in water, or more specifically in a nutrient-rich solution. No soil is involved in the process. Plants are housed on a medium such as vermiculite or peat moss and are connected to the nutrient solution through wicks, tubing, or their own roots.[1]
+
+![hydropnoics system]
 
 ####Why Hydroponics?
 Why would we remove soil from an equation that has worked for hundreds of years? One of the most prominent reasons is space. Hydroponics allows for the building of vertical systems which uses less than ? of the land that traditional growing in soil would require2. Other advantages include:
