@@ -1,5 +1,8 @@
 # Why Eating Local Food Is The Smart Choice 
 
+![Fresh Fruit at a Market in Copenhagen, Denmark](https://github.com/LanceElyot/veggiewagon/blob/master/Images/Joffey%20Farmers%20Market%20Photo.jpg?raw=true)
+Fresh Fruit at a Farmer's Market in Copenhagen, Denmark 
+
 Some of the best days from my time as a college student in sunny central Florida were spent every Sunday at the local farmers market at Lake Eola Park. Big white tents lined the main sidewalk as people and their accompanying four-legged friends walked the aisle. While entering the market, a large smile always crept on my face because all I saw and felt surrounding me was happiness. Happy farmers who were experiencing all their hard work pay off, happy people who could not wait to go home to cook up the fresh and delicious food they purchased, and, of course, the happy canines who were ecstatic to be outdoors surrounded by the sweet aroma of food. Farmers markets are a celebration of life. They are a celebration of the food and flora this stunning earth graciously grants us and they are a celebration of the people who commit their lives to providing those earthly gifts to others. At a time when people seem so disconnected from their neighbors and the natural world, farmers markets remind us of the beauty and the unity we share with each other and with this beautiful planet we call home. 
 
 ## Our Food System Today
@@ -18,7 +21,7 @@ Choosing to eat food grown locally has many benefits. For instance:
  
 You can begin sourcing your food from local farmers instead of your local grocery store, like I did. This website provided by the [USDA](https://www.ams.usda.gov/local-food-directories/farmersmarkets) is a great tool to utilize to look for farmers markets in your area. From my experience, buying local produce is cheaper than going to my local grocery store and as a college student, this is just one more added benefit. Overall, eating local food is the solution your body and the environment needs. Not only is locally sourced food immensely healthier for your body, buying food close to home supports your local economy and helps make a difference in the fight for preserving this beautiful planet. As Al Gore said: 
 
->“Believe in the power of your own voice. The more noise you make, the more accountability you demand from your leaders, the more our world will change for the better.”   
+>“believe in the power of your own voice. The more noise you make, the more accountability you demand from your leaders, the more our world will change for the better.”   
 ## References 
 
 Henne, Becky. “How Far Did Your Food Travel to Get to You?” _MSU Extension_, 20 Sept. 2012, www.canr.msu.edu/news/how_far_did_your_food_travel_to_get_to_you.
