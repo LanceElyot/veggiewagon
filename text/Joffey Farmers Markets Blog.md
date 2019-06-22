@@ -1,7 +1,5 @@
 # Why Eating Local Food Is The Smart Choice 
 
-![Fresh Fruit at a Farmer's Market in Copenhagen, Denmark](https://images.unsplash.com/photo-1498579397066-22750a3cb424?ixlib=rb-1.2.1&ixid=eyJhcHBfaWQiOjEyMDd9&auto=format&fit=crop&w=1950&q=80)
-
 Some of the best days from my time as a college student in sunny central Florida were spent every Sunday at the local farmers market at Lake Eola Park. Big white tents lined the main sidewalk as people and their accompanying four-legged friends walked the aisle. While entering the market, a large smile always crept on my face because all I saw and felt surrounding me was happiness. Happy farmers who were experiencing all their hard work pay off, happy people who could not wait to go home to cook up the fresh and delicious food they purchased, and, of course, the happy canines who were ecstatic to be outdoors surrounded by the sweet aroma of food. Farmers markets are a celebration of life. They are a celebration of the food and flora this stunning earth graciously grants us and they are a celebration of the people who commit their lives to providing those earthly gifts to others. At a time when people seem so disconnected from their neighbors and the natural world, farmers markets remind us of the beauty and the unity we share with each other and with this beautiful planet we call home. 
 
 ## Our Food System Today
