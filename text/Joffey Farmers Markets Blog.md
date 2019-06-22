@@ -1,4 +1,5 @@
 # Why Eating Local Food Is The Smart Choice 
+By: Rachel Joffey
 
 ![Fresh Fruit at a Market in Copenhagen, Denmark](https://github.com/LanceElyot/veggiewagon/blob/master/Images/Joffey%20Farmers%20Market%20Photo.jpg?raw=true)
 Fresh Fruit at a Farmer's Market in Copenhagen, Denmark 
