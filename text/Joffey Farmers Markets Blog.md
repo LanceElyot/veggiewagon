@@ -20,7 +20,7 @@ Choosing to eat food grown locally has many benefits. For instance:
 
  ## What You Can Do 
  
-You can begin sourcing your food from local farmers instead of your local grocery store, like I did. This website provided by the [USDA](https://www.ams.usda.gov/local-food-directories/farmersmarkets) is a great tool to utilize to look for farmers markets in your area. From my experience, buying local produce is cheaper than going to my local grocery store and as a college student, this is one more added benefit. Eating local food is the solution your body and the environment needs. Not only is locally sourced food immensely healthier for your body, buying food close to home supports your local economy and helps make a difference in the fight for preserving this beautiful planet. As Al Gore said: 
+You can begin sourcing your food from local farmers instead of your local grocery store, like I did. This website provided by the [USDA](https://www.ams.usda.gov/local-food-directories/farmersmarkets) is a great resource to utilize to look for farmers markets in your area. Additionally, I found that buying some products at markets can actually be cheaper than purchasing them at a grocery store, making this one more added benefit! Eating local food is the solution your body and the environment needs. Not only is locally sourced food immensely healthier for your body, buying food close to home supports your local economy and helps make a difference in the fight for preserving this beautiful planet. As Al Gore said: 
 
 >“Believe in the power of your own voice. The more noise you make, the more accountability you demand from your leaders, the more our world will change for the better.”   
 ## References 
