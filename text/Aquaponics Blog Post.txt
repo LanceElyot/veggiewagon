@@ -12,7 +12,7 @@ I rubbed a fuzzy green leaf between my fingers, my mind racing with the anticipa
 #### What is Hydroponics?
 Hydroponics is the science of growing plants in water, or more specifically in a nutrient-rich solution. No soil is involved in the process. Plants are housed on a medium such as vermiculite or peat moss and are connected to the nutrient solution through wicks, tubing, or their own roots.[1]
 
-![hydropnoics system]
+![hydropnoics system](https://github.com/LanceElyot/veggiewagon/blob/master/Images/AquaponicsBlogPhoto2.jpeg?raw=true)
 
 ####Why Hydroponics?
 Why would we remove soil from an equation that has worked for hundreds of years? One of the most prominent reasons is space. Hydroponics allows for the building of vertical systems which uses less than ? of the land that traditional growing in soil would require2. Other advantages include:
@@ -22,11 +22,17 @@ Why would we remove soil from an equation that has worked for hundreds of years?
 * Reduces pollution and runoff [1]
 With all of these advantages, the only major disadvantages to hydroponics are the initial startup cost, which is greater than traditional growing, and the time required to set up and monitor the systemÊ[1].
 
+![seeds](https://github.com/LanceElyot/veggiewagon/blob/master/Images/AquaponicsBlogPhoto3.jpeg?raw=true)
+
 #### The Big Picture
 Overall, hydroponics provides an opportunity for us to grow our own local food in places that we never could before, such as in arid climates and in space-limited urban areas, with increased productivity and less pollution to the environment.
 
+![plant growth](https://github.com/LanceElyot/veggiewagon/blob/master/Images/AquaponicsBlogPhoto4.jpeg?raw=true)
+
 #### Get Involved
 I was fascinated by the science behind hydroponics- the feeling of growing my own food while monitoring water quality allowed me to integrate health and science.I quickly found myself building my own smaller-scale system from everyday materials. If you too are feeling inspired, check out [this link](https://www.greenandvibrant.com/hydroponic-plans)for ideas to build your own hydroponic garden.
+
+![Mallory's system](https://github.com/LanceElyot/veggiewagon/blob/master/Images/AquaponicsBlogPhoto5.jpeg?raw=true)
 
 ####References
 1. Hydroponic Systems 101. (n.d.). Retrieved fromÊhttps://www.fullbloomhydroponics.net/hydroponic-systems-101/Ê?Ê?Ê?Ê?Ê?
