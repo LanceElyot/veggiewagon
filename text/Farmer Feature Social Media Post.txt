@@ -3,7 +3,8 @@
 
 "The 3rd generation Garner siblings have all had their involvement with the farm." Garner Farms is a true example of farming running in the family. What started as a farm to grow tobacco, corn, and soybeans is now famous for seasonal vegetables, fresh cut flowers, and pick-your-own strawberries. "Folks would come from all over the area to pick strawberries for canning and freezing and the tradition still stands today."
 
-![
+![Garner family](https://github.com/LanceElyot/veggiewagon/blob/master/Images/FarmerFeature1.jpeg?raw=true)
 
 Tune in **today at 3:00pm E.S.T** for our Facebook live stream with the Garner Farms family to tour the farm. 
-[Photo of family] [Photo of strawberry patch]
+
+![strawberry patch](https://github.com/LanceElyot/veggiewagon/blob/master/Images/FarmerFeature%202.jpeg?raw=true)
